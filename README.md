@@ -1,1 +1,0 @@
-# destinygarcia.github.io
